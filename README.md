@@ -1,1 +1,0 @@
-# MyShopyy.github.io
